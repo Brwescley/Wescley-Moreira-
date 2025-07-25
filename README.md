@@ -32,6 +32,7 @@
 
 ### 📫 Vamos conversar?
 - 📧 wescleymoreira@ymail.com  
-- 🌐 [LinkedIn](https://www.linkedin.com/in/SEU-LINK)  
+- 🌐 [LinkedIn] https://www.linkedin.com/in/SEU-LINK)](https://www.linkedin.com/in/wescley-moreira/
+- 🌐 https://www.coretek.com.br/
 - 🌍 Trabalhando remotamente a partir do Brasil (fuso compatível com Europa)
 
